@@ -8,7 +8,7 @@
 
 # Bonjour, fine sir/madam <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnp0dHFjZTdraGVjeml0M2gwOGo2enl0dmFpOWx2NHBrNm02dnY0MyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/kIKs2wJwPDw62dkDLU/giphy.gif" width="30">
 
-<h3>Noooo matthew dont blame yourself</h3>
+<h3>Ikan, ikan apa yang jijikan? Ikan iuuuuu</h3>
 
 </td>
 </tr>
